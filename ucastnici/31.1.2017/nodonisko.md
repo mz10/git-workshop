@@ -1,0 +1,1 @@
+Nejlepsi kurz ever <3 <3
